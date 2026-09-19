@@ -19,3 +19,7 @@ No dedicated page required
 Aggregated view counting from all posts
 No geographic or analytics restrictions
 Access to top-tier music campaigns
+
+<img width="1364" height="657" alt="avera_tab_2" src="https://github.com/user-attachments/assets/1fb0fc37-b12d-4862-b705-e5f061aafe8e" />
+
+Clipping Tool 3 Avera Key (https://discord.gg/hpSBRwWMQ5)
