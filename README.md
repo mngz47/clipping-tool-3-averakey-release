@@ -1,6 +1,8 @@
 
 # clipping-tool-3-averakey-release
 
+Quick Download : https://drive.google.com/drive/folders/1OWVblsV2_R7XD8JJvS3BOXNvpjYmOVPB?usp=sharing
+
 <img width="668" height="419" alt="clipping tool banner" src="https://github.com/user-attachments/assets/be8e26a5-338a-483d-a1a2-97595bc8bd34" />
 
 Support and Community (https://discord.gg/hpSBRwWMQ5)
