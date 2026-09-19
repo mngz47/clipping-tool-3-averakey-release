@@ -1,6 +1,10 @@
 
 # clipping-tool-3-averakey-release
 
+<img width="668" height="419" alt="clipping tool banner" src="https://github.com/user-attachments/assets/be8e26a5-338a-483d-a1a2-97595bc8bd34" />
+
+Support and Community (https://discord.gg/hpSBRwWMQ5)
+
 Clipster Training is a premier agency specializing in long-term TikTok audio campaigns.
 
 Our strategic approach focuses on ensuring budget consistency for creators,
